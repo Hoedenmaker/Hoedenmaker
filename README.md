@@ -1,5 +1,5 @@
 ## Hi there 👋
-![h68xomk1yh4c1](https://github.com/user-attachments/assets/35f93ad6-9134-4614-8073-77e0fa686ab9)
+![33pts8oo2t2e1](https://github.com/user-attachments/assets/962635dd-d9f0-4e6e-b195-c57953d3b6a5)
 <!--
 **Hoedenmaker/Hoedenmaker** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
